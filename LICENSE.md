@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium pump.fun sniper bot | auto-sell + volume-spike-detection, the #1 pump.fun sniper bot. Includes auto-sell and volume-spike-detection for a faster
 
 
 
